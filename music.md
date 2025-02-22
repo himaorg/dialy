@@ -1,0 +1,2 @@
+[再生する](./lofi-piano-quotfriendsquot-248624.mp3)
+Music by <a href="https://pixabay.com/ja/users/akiko_shina-42793791/?utm_source=link-attribution&utm_medium=referral&utm_campaign=music&utm_content=248624">Akiko Shina</a> from <a href="https://pixabay.com/music//?utm_source=link-attribution&utm_medium=referral&utm_campaign=music&utm_content=248624">Pixabay</a>
